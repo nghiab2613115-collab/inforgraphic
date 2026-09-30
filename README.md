@@ -1,6 +1,6 @@
 # Infographic 
 
-**Tác giả:** [Nhóm 06]
+**Tác giả:** Nhóm 06
 
 **Thiết kế:** Canva AI
 
